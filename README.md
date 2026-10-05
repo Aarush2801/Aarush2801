@@ -1,4 +1,4 @@
-## Hi there 👋
+## You are disturbing me. I am picking mushrooms.
 
 <!--
 **Aarush2801/Aarush2801** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
